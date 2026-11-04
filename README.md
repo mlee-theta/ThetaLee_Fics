@@ -1,1 +1,1 @@
-All I ask is that, when you are able, you find the story on ao3 and leave kudos and a comment. It is the only way I'll know you read and enjoyed these, and if I don't know people are enjoying them, wwhy would I keep posting them?
+All I ask is that, when you are able, you find the story on ao3 and leave kudos and a comment. It is the only way I'll know you read and enjoyed these, and if I don't know people are enjoying them, why would I keep posting them?
